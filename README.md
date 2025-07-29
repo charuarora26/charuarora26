@@ -1,6 +1,6 @@
 👋 Hi, I am Charu
 
-💼: I currently work as Analytics and Insight Manager
+💼: I currently work as Analytics and Insights Manager
 
 🏫: I studied Business Analytics @ Arizona State University
 
